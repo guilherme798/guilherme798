@@ -9,3 +9,5 @@ Meu nome é guilherme798
  ### VOCÊ PODE ENTRAR EM CONTATO COMIGO:
 
   guilherme.putrique.santos@escola.pr.gov.br
+
+![](https://media.tenor.com/_4uEGfEEfoUAAAAC/cat-computer.gif)
